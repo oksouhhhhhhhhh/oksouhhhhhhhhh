@@ -1,1 +1,1 @@
-We're so back (somewhat)
+I use this platform so fucking rarely, also Hi.
